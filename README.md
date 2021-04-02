@@ -1,0 +1,5 @@
+- 👋 Hi, We arer @nftcrafters
+- 👀 We are interested in nft's and crypto
+- 🌱 We arre currently learning crypto
+- 💞️ We arer looking to collaborate on nft's.
+- 📫 How to reach us https://linktr.ee/nftcrafters
